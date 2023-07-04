@@ -1,1 +1,1 @@
-# Web-truy-n_trah-
+# Web-truyen-tranh
